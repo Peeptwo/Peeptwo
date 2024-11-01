@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Peeptwo
+- 👋 Hi, I’m @guiii
 - 👀 I’m interested in games 
 - 🌱 I’m currently learning etiquette and mathematics 😔
 - 💞️ I’m looking to collaborate on in classes and at work, I'm tired of romances
